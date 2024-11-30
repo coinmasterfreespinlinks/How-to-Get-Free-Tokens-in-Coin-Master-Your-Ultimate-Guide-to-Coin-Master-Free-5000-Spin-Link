@@ -2,6 +2,9 @@
 
 Coin Master has captured the hearts of millions with its unique blend of slot machine mechanics and village building. Players are constantly on the lookout for ways to acquire free spins and tokens to enhance their gaming experience. In this comprehensive guide, we will explore effective strategies, tips, and tricks to help you get free tokens in Coin Master, while focusing on the coveted "Coin Master Free 5000 Spin Link."
 
+[👉𝐆𝐄𝐓 𝐘𝐎𝐔𝐑 𝐅𝐑𝐄𝐄 𝐒𝐏𝐈𝐍𝐒 & 𝐂𝐎𝐈𝐍𝐒 𝐍𝐎𝐖!](http://todaylink.site/Coinspins/)
+[👉𝐆𝐄𝐓 𝐘𝐎𝐔𝐑 𝐅𝐑𝐄𝐄 𝐒𝐏𝐈𝐍𝐒 & 𝐂𝐎𝐈𝐍𝐒 𝐍𝐎𝐖!](http://todaylink.site/Coinspins/)
+
 ## Table of Contents
 
 1. [Introduction to Coin Master](#introduction-to-coin-master)
